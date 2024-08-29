@@ -1,8 +1,8 @@
 ##  Ronaldo Reimer Here ❄️
 
 
-- ⚡️ Student of the IT Technical Course at Colégio Cedup Abílio Paulo de Criciúma/SC - Brazil
-- 💻🎮Profile intended for classes in Programming Language, Programming Logic, Just success!
+- 🏛 Student of the IT Technical Course at Colégio Cedup Abílio Paulo de Criciúma/SC - Brazil
+- 🎮Profile intended for classes in Programming Language, Programming Logic, Just success!
   
   
   
